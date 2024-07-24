@@ -6,7 +6,7 @@
 - 📌 Você pode me encontrar em: Emanuelly.souza.flavia@escola.pr.gov.br
 - 💋 Pronomes: ele/dele! 
 - 🏮 Fatos sobre mim: Jogo jogos eletrônicos desde meus 6 anos, adoro fição, amo jogar RPG's.
-![one piece](
+
 
 
 
